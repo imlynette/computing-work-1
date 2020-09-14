@@ -8,3 +8,7 @@ one day, she taught us how to control your anger by saying, "i feel angry becaus
 
 
 This is a sample pull request
+wait so if we r on the same one then u shud be able to read this and kno wat im doing rite?
+imma just pretend that i am actually useful to this earth lolz
+what is even going on rn-
+i cant see what ur doing man and this is uh ya kno, weird ig u could say haha
